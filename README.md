@@ -7,6 +7,8 @@
 
 Howdy, Your likely viewing this from Ponytown. Since Ponytown is the only website or app that actively has my Github.
 
+MY TIER 4 IS ONLY FOR FRIENDS AND PEOPLE I KNOW FROM FRIENDS, DO NOT ASK ME IF YOU CAN USE IT.
+
 note ; i am aroace, do not ship me w my friends.
 
   Dont be scared to interact with me, Though i do have Generalized Anxiety Disorder so it will take me a second to talk.
