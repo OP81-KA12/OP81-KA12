@@ -30,6 +30,8 @@ Feel Free to Talk To Me about Transformers IDW or Bayverse, I am still reading I
 
 I dont prefer to be near crowds on ponytown, Just a preference thing. I do not have crowd discomfort, I just do not like being near ponytown crowds
 
+I am a Yumeshipper, I am however Mirrorsharing. I yumeship with Dandy from Dandys World and Optimus Prime from Transformers ( Bayverse and IDW )
+
 ------------------------------------------------------------------------------------------------------
 
 Do not act weird around me, I am still a Minor.
@@ -39,3 +41,20 @@ Do not interact with me if Ex friends, Or If we've had issues in the past.
 Do not mention anything regarding Trauma around me unless Close friends. I do not feel comfortable knowing your traumatic backstory on a pony game.
 
 I do not friend people unless we've talked a bit and you ask me first.
+
+----------------------------------------------------------------------------------------
+
+FANDOMS IM IN
+
+Transformers Bayverse Fandom
+
+Transformers IDW Fandom
+
+Formula 1 Fandom
+
+Dandys World Fandom
+
+Dragon Adventures Fandom
+
+DC Fandom
+
