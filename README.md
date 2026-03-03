@@ -16,7 +16,7 @@ note ; i am aroace, do not ship me w my friends.
 
   Adding onto this, I have an issue with my wrist where it hurts often so if i go silent for a bit, It is likely that. I am not trying to ignore you I promise.
 
-My Github is themed after Dandy Dancifer from Dandys World. I am a multifandom person, And i am still in the Transformers fandom. I just change up my profile sometimes. I will keep my user however.
+My Github is themed after Dandy Dancifer from Dandys World. I am a multifandom person, And i am still in the Transformers fandom. I just change up my profile sometimes. My Username will always stay dandicusprime.
 
   I do sometimes roleplay, I am returning from a hiatus because of my Computer being broken. As of now, I have a new one that is a Gaming Computer. Though i am not mostly On Ponytown, You will still see me sometimes with this specific github. I do not have any other Githubs.
 
